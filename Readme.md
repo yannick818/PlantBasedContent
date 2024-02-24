@@ -65,6 +65,8 @@ Videos von glücklichen Tieren
 Troll, der kocht und Omnis roasted
 - [ANINOVA](https://www.instagram.com/aninova) \
 Tierschützer mit Bilder aus deutschen Tierbetrieben
+- [Vegan Reddit](https://www.reddit.com/r/vegan/) \
+Forum rund um Veganismus
 
 ### Memes
 
