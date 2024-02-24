@@ -40,6 +40,21 @@ Verschiedene weltweite Neuigkeiten
 - [Vegan Check](https://www.instagram.com/vegan_check) \
 Einkaufstipps für deutsche Supermärkte
 
+### Dokus
+
+- [Cowspiracy](https://www.imdb.com/title/tt3302820/) \
+Einfluss der Milchindustrie auf das Klima und die Umwelt
+- [Kiss the Ground](https://www.imdb.com/title/tt8618654/) \
+Regenerative Landwirtschaft
+- [Mein Leben auf unserem Planeten](https://www.imdb.com/title/tt11989890/) \
+Biografie zum Thema Artenvielfalt
+- [Seaspiracy](https://www.imdb.com/title/tt14152756/) \
+Fischerei & Meerestiere
+- [What the Health](https://www.imdb.com/title/tt5541848/) \
+Zusammenhang der Tier- und Medizinindustrien
+- [Dominion](https://www.imdb.com/title/tt5773402/) \
+Ein Blick hinter die Kulissen der Tierindustrie
+
 ### Aktivismus
 
 - [Veganizer](https://www.instagram.com/veganizer.d) \
