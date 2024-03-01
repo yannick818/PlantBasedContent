@@ -54,6 +54,8 @@ Fischerei & Meerestiere
 Zusammenhang der Tier- und Medizinindustrien
 - [Dominion](https://www.imdb.com/title/tt5773402/) \
 Ein Blick hinter die Kulissen der Tierindustrie
+- [Tomatolix Vegan Youtube](https://www.youtube.com/watch?v=2Qk75XhDFJk) \
+Die Wahrheit über Veganismus. 30 Tage Vegan Selbstexperiment
 
 ### Aktivismus
 
